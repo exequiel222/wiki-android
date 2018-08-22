@@ -1,0 +1,1 @@
+Bienvenido a la wiki del Cho, aquí vas a encontrar información util
